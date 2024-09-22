@@ -1,7 +1,7 @@
-. My name is DALJIT SINGH
-. I  am from INDIA, MY nation holds lot of states I am from haryana which well known for sports
-. I am found of my achievement 
-. Which are : 
+My name is DALJIT SINGH
+I  am from INDIA, MY nation holds lot of states I am from haryana which well known for sports
+I am found of my achievement 
+Which are : 
 
 1.  I got first position in vollyball in state level
 2.  Great service award in Mcdonald's
